@@ -10,12 +10,6 @@
 - ⚡ Fun fact: I love watching good serials 👌
   <br>
   
-
-🎥 My top3 serials: <blockquote>
-  🧪 Breaking Bad <br>
-  📞 Better Call Saul <br>
-  👨‍💻 Mr.Robot <br>
- </blockquote>
   
 <br><br>
 
